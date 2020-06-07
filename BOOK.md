@@ -8,3 +8,10 @@ e hef
  w w
  dw 
  
+wdjbwuj wdb w diwhd w wd\\wudbw \
+wdiwkibd wd w
+wv dwn  
+ wjdbwb d 
+  diowbd
+  w wd 
+  
